@@ -1,3 +1,0 @@
-# ptdd
-
-kajsñfjasñkfasñdfkl
